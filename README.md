@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Benc8
+- 👀 I’m interested in motorcycles and I have one too, and I can also play the guitar
+- 🌱 I’m currently learning in Debreceni SZC Mechwart András Gépipari és Informatikai Technikum to be a CCNA(Cisco Certified Network Associate)
+- 😄 Pronouns: he/him
